@@ -1,0 +1,1 @@
+I, Ayushi, am too tired to write another story right now :) enjoy me ranting about my weird life:

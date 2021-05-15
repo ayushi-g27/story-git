@@ -1,1 +1,0 @@
-So me and Sanjana went to Fallon Sports Park during covid (with masks on of course) and then when we were both talking about something that happened to me last year involving rashid(mean kid). 
